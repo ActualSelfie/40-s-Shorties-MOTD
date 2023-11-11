@@ -11,6 +11,7 @@ If you have anything you're willing to spare, feel free to donate by clicking th
 
 <a id="GPORTAL Donation Page">https://www.g-portal.com/int/donate/15eb6e7494183312116ad8837e1c7212/actual%20selfie</>
 
+
 **Rules**
 - No Exploits or Cheating
 - No Unwanted RDM
