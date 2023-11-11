@@ -2,11 +2,13 @@
 
 
 Looking to improve your skills and get coaching? Interested in becoming a moderator? Need to report a player or staff? Join our Discord by clicking the link below!
+
 <a id="40's & Shorties Discord">https://discord.gg/wXBUn2qSFJ</>
 
 
 The total cost for our server is relatively inexpensive at $30 a month. However, we do accept donations directly to our hosting account to ease the financial burden.
 If you have anything you're willing to spare, feel free to donate by clicking the button below! Remember that life comes first and you should not donate before considering your own financial situation.
+
 <a id="GPORTAL Donation Page">https://www.g-portal.com/int/donate/15eb6e7494183312116ad8837e1c7212/actual%20selfie</>
 
 **Rules**
