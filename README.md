@@ -1,4 +1,4 @@
-#                        Welcome to **40's & Shorties**
+#                             Welcome to **40's & Shorties**
 
 **Join our Discord!**
      Looking to improve your skills and get coaching? Interested in becoming a moderator? Need to report a player or staff? Join our Discord by clicking the link below!
